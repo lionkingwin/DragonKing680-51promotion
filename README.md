@@ -1,6 +1,6 @@
 # 龙王ai680智能分析软件
 龙王ai680智能分析软件，2022年五一劳动节促销活动，官方正品7.2折优惠放送，欢迎前来选购。
-![龙王ai680智能分析软件 2022年51劳动节钜惠促销活动](https://raw.githubusercontent.com/lionkingwin/DragonKingai680-51promotion/main/DragonKingai680-51.png)
+![龙王ai680智能分析软件 2022年51劳动节钜惠促销活动](https://raw.githubusercontent.com/lionkingwin/DragonKing680-51promotion/main/DragonKingai680-51.png)
 
 ## 活动详情
 ### 🦁 龙王ai680
